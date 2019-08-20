@@ -1,2 +1,2 @@
-# foolishPig.github.io
+# wallacepalyfrog.github.io
 个人主页
